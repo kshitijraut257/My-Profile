@@ -1,1 +1,1 @@
-# Hi there👋! I'm Kshitij🙋🏻
+# Hi there👋! I'm Kshitij🙋
